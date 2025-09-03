@@ -1,1 +1,1 @@
-# Quantum-Elite-Scholar-s-Society
+# Quantum-Elite-Scholar's-Society
